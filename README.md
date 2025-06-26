@@ -1,4 +1,4 @@
-# wwoahahoah
+# READ THIS puhlease ^.^
 i'll get to it
     
          liam . battery
