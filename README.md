@@ -1,9 +1,6 @@
 # READ THIS puhlease ^.^
-i'll get to it
+
     
          liam . battery
-      ; it/he .   we/us 
-              >
-      minor  . sys+fctkin
-    no dni -- we block freely
-       sign strawpage ^o^
+       it/any  .   plural  :thinking : 
+      no dni but we do block freely   
